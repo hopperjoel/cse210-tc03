@@ -1,1 +1,1 @@
-# cse210-tc03
+My name is Jucinaldo Duarte. I live in Salvador, Bahia, Brazil with my wife and our two children. I have some experience working with IT. When I'm not working, I enjoying playing video games. Last year, I decided to go back to the university as an online student at BYUI and it has been gratifying.
